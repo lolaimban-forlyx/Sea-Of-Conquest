@@ -224,4 +224,4 @@ Sea of Conquest is offered as a complete free version with all features and upda
 Don’t miss your chance to embark on an epic adventure in Sea of Conquest! Download now and prove your skills as a pirate captain!
 
 ---
-**Last updated:** 2026-10-09 20:35:48 UTC
+**Last updated:** 2026-10-10 00:30:58 UTC
